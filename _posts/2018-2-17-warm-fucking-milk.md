@@ -81,11 +81,11 @@ I think I got all of it out for now.
 
 ## 3 Gratitudes
 
-I am grateful for the Belgian hacker who helped me track down the sick fuck exploiting me online. 
+I am grateful for the hacker who helped me track down the sick fuck exploiting me online. 
 
 I am grateful for my friend Megan, who has also been through this shit before and has proven to be a huge help to me. 
 
-I am thanful for this Instagram post I saw today because as fucked as this situation is, laughing about it helps an awful lot. I am also thankful for the BADASS army that posted it, because they have given me hope that this is not forever -even though it kind of is. 
+I am thanful for this Instagram post I saw today because as fucked as this situation is, laughing about it helps an awful lot. I am also thankful for the Folks who posted it, because they have given me hope that this is not forever -even though it kind of is. 
 
 [![Nudes](https://github.com/kdawgy/kdawgy.github.io/blob/master/_posts/assets/noodz.jpeg?raw=true)](https://www.instagram.com/p/BfG1xbFj1AM/?taken-by=thebadass_army)
 
