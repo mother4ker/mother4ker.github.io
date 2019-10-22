@@ -2,6 +2,7 @@
 layout: post
 title: My Revenge Porn and Me 
 ---
+![fml](/images/fml.png)
 What's happening in my revenge porn case? Nothing. That's the problem. It's been two years since *he* posted my naked body online and he's still out there, free. 
 
 I still think about it a lot,  but it's not always at the front of my mind anymore. When I remember what happened, it hits me right in the gut and instantly I feel sick. I dread seeing him in court but I have to make myself go, just so I know he's as miserable as I am. 
