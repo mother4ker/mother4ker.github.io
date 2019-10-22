@@ -2,7 +2,7 @@
 layout: post
 title: St Patty was a Dick
 --- 
-![vacationonthemind](/assets/neonBADASS.JPG)  
+![neon](/images/stpaddy.png)  
 Has it really been this long since I wrote something here? 
 
 ##Facts:
