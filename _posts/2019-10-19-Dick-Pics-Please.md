@@ -1,10 +1,8 @@
 I haven't been blogging. I've been in my head too much.
+![eggplants](/images/eggplants.png)
+I've been busy... taking naps mostly. staring at my plants. I'm also launching a startup (you can do that laying down).
 
-I've been busy... taking naps mostly.
-
-I'm also launching a startup (luckily you can do that laying down).
-
-Me and a colleague are working on a filter for Twitter called safeDM. I wanted to call it the pecker wrecker but Manuel said no. 
+Im part of a team working on a filter for Twitter called safeDM. I wanted to call it the pecker wrecker but Manuel said no. 
 
 The filter uses Artificial Intelligence, or AI, to identify dick pics and delete them from your DMs. Pretty cool right? 
 
