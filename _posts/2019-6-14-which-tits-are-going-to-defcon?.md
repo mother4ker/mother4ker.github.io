@@ -2,7 +2,7 @@
 layout: post
 title: which tits are going to DEFCON?
 --- 
-![Tits to DEFCON 27](/images/titsfordefcon.png)
+![Im going to defcon27](/images/windows.png)
 ###These Tits!!
 - these tits are going to DEFCON
 I did something I don't feel like telling my therapist about. 
