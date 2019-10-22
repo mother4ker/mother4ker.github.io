@@ -2,7 +2,7 @@
 layout: post
 title: roadtrip.reset
 ---
-![Cheers](_posts/assets/minorLeagueBeer.png)
+![Roadtrip](/images/roadtrip.png)
 ### What's Good
 -  Roadtrip this weekend. Felt good to get away. 
 -  I'm going to DEFCON
