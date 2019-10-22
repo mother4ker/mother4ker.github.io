@@ -2,7 +2,7 @@
 layout: post
 title: holla challah!
 --- 
-![fancy bread](/images/holla-challah.png)
+![Wheat](/images/wheat.png)
 Me and A went out to anniversary dinner last night. We ate at Salty's in Seattle- and nobody gives a shit about what I ate (fried chicken and mashed potatoes).
 
 I need to double down on My Ada application and get it done! I think part of me is putting off finishing it because I'm nervous to put myself out there and *not* get it. Again. 
