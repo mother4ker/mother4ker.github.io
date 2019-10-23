@@ -33,7 +33,7 @@ I called them a couple weeks later because my stalker was promising to post more
 
 ![hunter](/images/hunter.jpg)
 
-I took matters into my own hands, forcing the creep to reveal himself to me. He called me, thinking he could save himself. When I saw "Greg" come up on my caller ID, my ex's name from ten years ago, everything clicked. I wanted to throw up. 
+I took matters into my own hands, forcing the creep to reveal himself to me. I tricked him into believing he was already caught. He called me, thinking he could save himself. When I saw "Greg" come up on my caller ID, my ex's name from ten years ago, everything clicked. I wanted to throw up. 
 
 
 Only once I had solved the case did the police actually put a detective on it. As far as the investigation? I was on my own. It was a nightmare. The truth is that law enforcement are just not equipped to deal with these cases. They need massive amounts of training. I hate to think about what other victims who are less technical have to go through.
