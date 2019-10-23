@@ -38,7 +38,7 @@ Only once I had solved the case did the police actually put a detective on it. A
 
 It wasn't just me he did this to. Sure, I had it the worst, but I confirmed photos of at least six other women were also posted by Greg. He is a predator. Even more disturbing, I found he was watching my little sister as well. She kept getting notices that someone was trying to access her phone and her Snapchat. When I compared the IP address, it was Greg's. 
 
-![loser](loser.jpg)
+![loser](/images/loser.jpg)
 
 What have I got from all of this? Well, I was granted a restraining order. That's it. That's the only thing protecting me from this guy now. Every month or two we go back to court for a status update and nothing ever happens other than the case gets extended out further. The pictures came down eventually, but not before I had to tell potential employers what had happened for fear they'd see my boobs in a google search. And not before everyone I went to school with saw them. You see, a side effect of letting others know they've been posted is that people talk, more and more people find out about the site, get curious, and go look for themselves. 
 
