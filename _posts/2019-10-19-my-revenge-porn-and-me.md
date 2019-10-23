@@ -33,4 +33,6 @@ It's important for me to press charges. The damage is already done in my case bu
 
 The creep is being charged with a felony, cyber trespass. Right now we are set to go to trial in December but it's unclear if it will actually happen. Everything in the courts takes so long, and nothing goes how you think it should. It doesn't help that the prosecutor's office lost my case for six months, putting me at the end of the line. 
 
-I'm nonchalant about all of this now but nothing about this has been easy. Keeping a sense of humor helps me to cope (along with lots of meds). I have had to fight every step of the way to be heard and to be taken seriously. I want to see him held responsible for what he did but honestly? I don't have a lot of hope that will happen anymore. I just want him to leave me alone forever. 
+I'm nonchalant about all of this now but nothing about this has been easy. Keeping a sense of humor helps me to cope (along with lots of meds). I have had to fight every step of the way to be heard and to be taken seriously. I want to see him held responsible for what he did but honestly? It's hard to have hope some days. It's been so long and I've gained very little (other than PTSD).I just want him to leave me alone forever. I want to start making memories that he doesn't know about. I want him to forget about me. Sometimes I worry if he goes to jail for this he might never forget me, and that he will harbor a grudge or do something crazy. 
+
+Life can be really weird. 
