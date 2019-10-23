@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fuck My Life: My Revenge Porn and Me 
+title: Revenge Porn & Me
 ---
 ![fml](/images/fml.png)
 What's happening in my revenge porn case? Nothing. That's the problem. It's been two years since some freak posted my naked body online and he's still out there, free. 
