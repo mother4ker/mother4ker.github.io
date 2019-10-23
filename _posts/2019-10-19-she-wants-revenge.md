@@ -27,6 +27,8 @@ It was a month before I knew who was behind it. It was a really scary time becau
 
 I reported everything to the police. I told them I thought someone had been watching me for a very long time. They thought a more likely explanation was that these photos had been shared between the guys, even after I told them that was impossible. I showed them evidence of an IP address accessing my accounts that did not belong to me. They told me I was most likely wrong, even though they clearly knew less about technology than I did. 
 
+![zerofucks](/images/zerofucks.jpg)
+
 I called them a couple weeks later because my stalker was promising to post more of my nudes and I wanted to stop him. He was going to post them that night and I was panicking. Nobody at the station knew what I was talking about, they just sent my call around and around in a circle, and I eventually gave up on them helping me. I was desperate.
 
 ![hunter](/images/hunter.jpg)
