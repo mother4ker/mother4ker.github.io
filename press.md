@@ -11,9 +11,9 @@ permalink: /press/
 <br>
 [Mirror](https://www.mirror.co.uk/tech/ai-system-can-detect-delete-19912516)
 <br>
+The Sun
+<br>
 Vice
 - [Tits for DEFCON](https://www.google.com/amp/s/www.vice.com/amp/en_us/article/d3nkqm/revenge-porn-activist-badass-army-is-selling-nudes-to-get-to-def-con)
 - [RP Victims Fight Back](https://www.google.com/amp/s/www.vice.com/amp/en_us/article/59k7qx/revenge-porn-what-to-do-badass-army-anon-ib)
 - [RP Moves to Slack](https://www.google.com/amp/s/www.vice.com/amp/en_us/article/d3nkqm/revenge-porn-activist-badass-army-is-selling-nudes-to-get-to-def-con)
-<br>
-The Sun
