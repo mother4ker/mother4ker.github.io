@@ -4,12 +4,12 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+I'm Kelsey! I'm a wannabe web developer and entrepreneur with a habit of causing a ruckus. I stand up against things like revenge porn and online harassment of all kinds.
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+If you'd like to support my trip to DEFCON next year I'd appreciate it so much! All funds will go to DEFCON expenses, with anything above my needs funding scholarships for other Women and Allies in Tech. 
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[Email Me](mailto:kelseyrbressler@gmail.com)
