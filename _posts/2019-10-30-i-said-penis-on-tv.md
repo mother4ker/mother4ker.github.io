@@ -1,5 +1,5 @@
 ---
-layout:post
+layout: post
 title: I said "penis" on TV 
 ---
 
