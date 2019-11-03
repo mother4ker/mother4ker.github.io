@@ -8,7 +8,7 @@ I'm Kelsey! I'm a wannabe web developer and entrepreneur with a habit of causing
 
 ### More Information
 
-If you'd like to support my trip to DEFCON next year I'd appreciate it so much! All funds will go to DEFCON expenses, with anything above my needs funding scholarships for other Women and Allies in Tech. 
+If you'd like to [support my trip to DEFCON] next year I'd appreciate it so much! All funds will go to DEFCON expenses, with anything above my needs funding scholarships for other Women and Allies in Tech. 
 
 ### Contact me
 
