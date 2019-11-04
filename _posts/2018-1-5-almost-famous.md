@@ -1,10 +1,12 @@
 ---
 layout: post
 title: Almost Famous
-categories: personal
+categories: [personal, revenge_porn]
 ---
 
 So far I am not a fan of 2018. This probably isn't the best outlet to discuss- but it's bad. **REAL BAD.**
+
+(A note from the future - I had just found out my nudes had been posted online) 
 
 Then. 
 

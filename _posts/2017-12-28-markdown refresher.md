@@ -1,7 +1,7 @@
 --- 
 layout: post
 title: markdown is fun
-categories: [technology, learning]
+categories: [technology, learning, wang]
 ---
 
 I **finally** took the time to refresh my markdown skills. 

@@ -1,6 +1,7 @@
 ---
 layout: post
 title: bad developer
+categories: [personal, wang]
 ---
 
 I need to get better about writing. I'm sorry, Mr. Wang. 
