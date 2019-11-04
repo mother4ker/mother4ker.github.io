@@ -1,6 +1,7 @@
 ---
 layout: post
 title: I said "penis" on TV 
+categories: [technology, personal]
 ---
 
 ![doctors](/images/doctors.PNG)
