@@ -1,6 +1,7 @@
 ---
 layout: post
 title: the elephant.
+categories: [personal, revenge porn]
 --- 
 I've been avoiding the elephant but that can be hard to do.
 ![Fuck you elephant](/images/elephant.png)
