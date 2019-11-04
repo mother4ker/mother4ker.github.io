@@ -1,7 +1,7 @@
 ---
 layout: post
 title: always something new to learn: Jekyll Categories
-categories: technology
+categories: [technology, learning]
 ---
 
 ![i heart jekyll](/images/iheartjekyll.png)
