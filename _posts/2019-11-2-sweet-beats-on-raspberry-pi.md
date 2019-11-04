@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Sick Beats
-tags: ["personal", "technology", "raspberry pi"]
+categories: [personal, technology]
 ---
 ![sick beats](/images/sickbeats.png)
 It's been a quiet weekend, other than the **sick beats coming out of my raspberry pi.**
