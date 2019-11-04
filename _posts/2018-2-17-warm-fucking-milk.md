@@ -1,6 +1,7 @@
 ---
 layout: post
 title: like warm milk, she says
+categories: personal
 ---
 
 So, this is about to take an unexpectedly raunchy turn. Luckily, I have no following to disappoint. I hope Mr. Wang doesn't view me as unprofessional when he finds out about this. 

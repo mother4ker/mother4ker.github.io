@@ -1,6 +1,7 @@
 ---
 layout: post
 title: march 1 warm milk
+categories: personal
 ---
 
 The milk must go on, even without Rhonda. 

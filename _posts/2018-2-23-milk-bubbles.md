@@ -1,6 +1,7 @@
 ---
 layout: post
 title: milk bubbles
+categories: personal
 ---
 
 I am terrible at this whole milk journal thing. I feel like it did help the last time, but it's hard to make myself do it. I am demotivated, sad, and CrAzY!!

@@ -1,6 +1,7 @@
 ---
 layout: post
 title: Mindful AF  
+categories: personal
 ---
 Harry asked me if I was interested in mindfulness and I said sure, so he sent me a bunch of information on mindfulness and I ignored it for a couple of weeks. 
 [![Nudes](https://github.com/kdawgy/kdawgy.github.io/blob/master/images/handbrain.jpeg?raw=true)](https://www.youtube.com/watch?v=f-m2YcdMdFw&feature=youtu.be)

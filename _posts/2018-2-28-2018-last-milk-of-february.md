@@ -1,7 +1,7 @@
 ---
 layout: post
 title: last milk of February
-comments: true
+categories: personal
 ---
 
 So long, February. 
