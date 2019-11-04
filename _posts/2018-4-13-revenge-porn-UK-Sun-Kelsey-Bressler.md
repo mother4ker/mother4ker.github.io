@@ -1,6 +1,7 @@
 ---
 type: post
 title: Talking Revenge Porn with The Sun
+categories: revenge_porn
 ---
 ![Revenge Porn Is Bad. Don't do it.](https://github.com/kdawgy/kdawgy.github.io/blob/master/_posts/assets/ukSunRevengePorn.jpg?raw=true)
 I've never been to the UK, but my face has. It was a pleasure to talk with George about revenge porn and the hardships that it causes. I am grateful for the opportunity to bring more awareness to our cause! Major kudos to the UK for having laws in place against this practice.

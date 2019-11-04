@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Revenge Porn & Me
-categories: [personal, revenge porn]
+categories: [personal, revenge_porn]
 ---
 ![fml](/images/fml.png)
 What's happening in my revenge porn case? Nothing. That's the problem. It's been two years since some freak posted my naked body online and he's still out there, free. 
