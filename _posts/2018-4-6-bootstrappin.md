@@ -1,6 +1,7 @@
 ---
 layout: post
 title: Bootstrap's the Best 
+categories: [technology, learning]
 ---
 
 Who doesn't love a good Bootstrap tutorial to get them in the mood for makin' stuff. It's just so nice and easy. 
