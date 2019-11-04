@@ -10,4 +10,6 @@ permalink: /ilike/
 <br>
 <br>
 
-![consumerism](/images/consumerism.png)
+<a href="mother4ker.github.io/consumerism">
+   <img src="/images/consumerism.png">
+</a>
