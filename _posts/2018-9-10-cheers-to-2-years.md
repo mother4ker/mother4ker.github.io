@@ -1,6 +1,7 @@
 ---
 layout: post
 title: cheers 2 years!
+categories: personal
 --- 
 I've been married two years. I have no advice to give and I'm not a lovey dovey person so lets skip all that and look at pictures of how pretty my wedding was. 
 ![Ferries and weddings](/images/wedding2.jpg) 
