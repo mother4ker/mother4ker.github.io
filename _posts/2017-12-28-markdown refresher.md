@@ -1,6 +1,7 @@
 --- 
 layout: post
 title: markdown is fun
+categories: [technology, learning]
 ---
 
 I **finally** took the time to refresh my markdown skills. 

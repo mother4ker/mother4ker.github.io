@@ -1,6 +1,7 @@
 ---
 layout: post
 title: Almost Famous
+categories: personal
 ---
 
 So far I am not a fan of 2018. This probably isn't the best outlet to discuss- but it's bad. **REAL BAD.**
