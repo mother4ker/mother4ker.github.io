@@ -5,6 +5,7 @@ permalink: /about/
 ---
 
 I'm Kelsey! I'm a wannabe web developer and entrepreneur with a habit of causing a ruckus. I stand up against things like revenge porn and online harassment of all kinds.
+![cd icons](/images/cds.png)
 
 ### More Information
 
@@ -16,4 +17,3 @@ If you'd like to [support my trip to DEFCON](https://www.gofundme.com/f/tits4def
 <br>
 <br>
 
-![cd icons](/images/cds.png)
