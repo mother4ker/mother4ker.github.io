@@ -11,7 +11,6 @@ I'm Kelsey! I'm a wannabe web developer and entrepreneur with a habit of causing
 If you'd like to [support my trip to DEFCON](https://www.gofundme.com/f/tits4defcon) next year I'd appreciate it so much! All funds will go to DEFCON expenses, with anything above my needs funding scholarships for other Women and Allies in Tech. 
 
 ### Contact me
-![email me](/images/email.png)
 [Email Me](mailto:kelseyrbressler@gmail.com)
 
 <br>
