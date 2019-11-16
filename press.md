@@ -9,6 +9,8 @@ permalink: /press/
 <br>
 [BBC](https://www.bbc.com/news/technology-49611951)
 <br>
+[Pluralist](https://pluralist.com/kelsey-bressler-nude-pic-men/)
+<br>
 [Mirror](https://www.mirror.co.uk/tech/ai-system-can-detect-delete-19912516)
 <br>
 The Sun
