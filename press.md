@@ -19,3 +19,7 @@ Vice
 - [Tits for DEFCON](https://www.google.com/amp/s/www.vice.com/amp/en_us/article/d3nkqm/revenge-porn-activist-badass-army-is-selling-nudes-to-get-to-def-con)
 - [RP Victims Fight Back](https://www.google.com/amp/s/www.vice.com/amp/en_us/article/59k7qx/revenge-porn-what-to-do-badass-army-anon-ib)
 - [RP Moves to Slack](https://www.google.com/amp/s/www.vice.com/amp/en_us/article/d3nkqm/revenge-porn-activist-badass-army-is-selling-nudes-to-get-to-def-con)
+[Perth Now](https://www.perthnow.com.au/technology/web-developer-kelsey-bressler-solicits-dick-pics-on-twitter-to-try-and-build-ai-to-block-them-ng-b881331102z)
+
+##Published Works 
+[Huff Post](https://www.huffingtonpost.co.uk/entry/cyberflashing-revenge-porn_uk_5dce6dcce4b0d2e79f8a785f?ncid=other_homepage_tiwdkz83gze&utm_campaign=mw_entry_recirc)
