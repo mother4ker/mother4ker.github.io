@@ -3,7 +3,7 @@ type: post
 title: Know My Name
 categories: [books, personal, revenge_porn]
 ---
-
+![chanel-miller](/images/chanel-miller.jpeg)
 I've been waiting for this book. I needed it. 
 
 Chanel puts into words what I have not been able to. I know my situation pales in comparison to hers. Rape is far more serious than revenge porn. Still, though, there is so much i can relate to. 
