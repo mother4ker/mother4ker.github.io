@@ -10,7 +10,11 @@ Chanel puts into words what I have not been able to. I know my situation pales i
 
 Both of us have had things taken from us by people who felt entitled to our bodies- abused by men who had no regard for our futures. 
 
-She talks about her experience with the courts. The invasiveness. The pain. The waiting and lack of control. The feeling of utter helplessness.
+She talks about her experience with the courts. The invasiveness. The pain. The waiting and lack of control. The feeling of utter helplessness. The total lack of privacy. I see you Chanel. And I'm sorry. 
+
+This book was perfect to get me ready for my own trial, which has been postponed again, this time until March. 
+
+
 
 
 
