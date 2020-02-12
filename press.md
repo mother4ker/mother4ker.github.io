@@ -11,6 +11,10 @@ permalink: /press/
 <br>
 [Pluralist](https://pluralist.com/kelsey-bressler-nude-pic-men/)
 <br>
+[Greatist](https://greatist.com/live/safedm-dick-pic-filter-for-twitter)
+<br>
+[Scary Mommy](https://www.scarymommy.com/unsolicited-dick-pic-response-cockblock-app/)
+<br>
 [Mirror](https://www.mirror.co.uk/tech/ai-system-can-detect-delete-19912516)
 <br>
 The Sun
